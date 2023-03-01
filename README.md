@@ -9,4 +9,4 @@
 TG:https://t.me/Ghost_ZiLie
 
 当然，以下教程你也可以提前准备以下：
-https://zilie.furry.pub/17/eyvind/
+待添加
